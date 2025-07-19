@@ -27,6 +27,7 @@ url: "https://russellbradley.github.io" # the base hostname & protocol for your 
 twitter_username: never2rusty
 github_username:  russellbradley
 timezone: America/New_York
+show_excerpts: true
 
 # Build settings
 theme: "minima"
