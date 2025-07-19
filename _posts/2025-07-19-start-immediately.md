@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Start immediately"
+date: 2025-07-19 07:03:00 -0400
+categories: coaching advice
+--- 
+
+The sooner you start. The sooner you'll know. And what you'll know will be determined by your experience from starting. It's a *growth loop*. Maybe you're not good enough. Maybe you're better than what you anticipated. Maybe it's not as fun as you imagined. Maybe you'll no longer be able to envision yourself doing anything but now that you've started. Unfortunately, or maybe fortunately, the only way to obtain this crucial **info-awareness** needed to grow is to start. That's why now, I'm a huge fan of starting whatever it is that I'm interested in almost immediately, and I highly recommend that you do the same.
+
+Historically, I've always been a chronic procrastinator, and procrastination is the biggest obstacle when it comes to starting anything. With information overload everywhere, it's easy to rabbit-hole looking things up but never actually doing anything with that knowledge. This is the *knowledge loop*, which is crazy when you think about it. So, basically, you acquire a ton of knowledge and then that knowledge makes you realize that you don't really know much, so you keep digging to gain more knowledge. Again, this is terrible because you're not actually applying what you've learned, or rather you're not putting that new knowledge you've acquired to an actual task. Instead, you've actually accomplished nothing other than being highly informed, which translates to nothing getting done since you haven't put that knowledge to work. Also, all that knowledge that you've dug up is easily forgotten because there is no emotion behind it. On the other hand, if you had started immediately, sure you'll likely get stuck more often and likely make very slow progress, but there will be moments where that progress triggers tiny emotional hits that will make the information stick longer. Here's the truth: it's easier to remember things that we associate with a *feeling*.
+
+It's interesting when you think about it. Starting on a goal with absolutely no knowledge whatsoever actually moves you closer to your end goal as opposed to trying to acquire a bunch of knowledge to be in a better position when you start. That's because "when you start" doesn't necessarily mean that you will eventually start, because it's possible that you'll procrastinate and never start, whereas diving in immediately makes progress, *immediately*. You'll probably fail initially, and your progress will probably be microscopic, but that's more progress than no progress, which typically is the result of just knowledge hoarding without applying what you've learned. So in other words, starting immediately is more effective than falling into a *knowledge loop* as you essentially kick off the *growth loop*, which you gain experience from right away. That *growth loop* triggers new thought, which triggers new awareness, which might make you more determined or make you realize whatever it was you were interested in is no longer something that's important to you.
+
+So, you've got to start **immediately**. You have to gain knowledge from experience rather than information. It sticks better that way due to the emotion associated with it, and that triggers the *growth loop*, which helps you realize if your newly acquired **info-awareness** is leading you down the path of accomplishing your goal.
+
+Peace,  
+Rus
